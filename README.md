@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mainbranchisnotmaster530
+- 👀 I’m interested to a woman
+- 🌱 I’m currently learning to live the life
+- 💞️ I’m looking to collaborate on solving my problem
+- 📫 You can reach me by commenting on my code
